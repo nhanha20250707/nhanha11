@@ -15,4 +15,4 @@
 平台内容丰富，涵盖多种类型，确保每位用户都能找到自己喜欢的影片。我们每天都会更新最新内容，保证您不错过任何精彩时刻。
 无论是剧情片还是其它类别，我们提供流畅、无干扰的观看体验。立即进入，享受无广告、高清的日本AV娱乐！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nhanha20250707/nhanha11 ）</span>
